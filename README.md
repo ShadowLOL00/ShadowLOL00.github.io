@@ -1,1 +1,2 @@
-# ShadowLOL00.github.io
+# Confie no Senhor Deus Pai Todo-Poderoso
+![Cachorro Fofo](https://pasteboard.co/yETaNU2yNjmX.gif)
